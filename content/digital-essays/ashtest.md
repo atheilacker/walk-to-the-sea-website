@@ -12,7 +12,7 @@ While this essay highlights some of the most interesting goods in colonial Bosto
 
 Paragraph text
 
-More paragraph text
+This pinewood cabinet, created in 1753, is painted using black and gold and depicts idealized scenes of Chinese landscape and figures. This technique is called ["Jappanning,"](https://books.google.com/books?id=dZhDEQAAQBAJ&printsec=frontcover&source=gbs_ge_summary_r&cad=0#v=onepage&q&f=false) a type of finish meant to imitate East Asian lacquerwork and furniture style. 
 
 ![Japanned pinewood cabinet decorated with Chinese landscapes and figures, designed by John Linnell, made by William Linnell, 1753, London. Museum no. W.55:1 to 24-1952. © Victoria and Albert Museum, London
 ](https://vanda-production-assets.s3.amazonaws.com/2019/07/04/15/17/36/0f1ca61a-8909-435b-9b6f-8d6ca9327611/sidecupoard.jpg)
