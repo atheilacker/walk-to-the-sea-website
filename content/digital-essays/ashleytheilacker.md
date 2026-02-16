@@ -42,6 +42,7 @@ Today, New England is widely known for its harsh winters and frozen rivers, and 
 Born in 1783 and educated at Harvard, Frederic Tudor began Boston's ice trade when he was only 23 years old. Shipping companies [refused to partner with Tudor on his endeavor,](https://www.smithsonianmag.com/arts-culture/the-ice-king-cometh-frederic-tudor-father-of-the-ice-industry-29955743/) so he was forced to innovate ships that could transport ice across the Atlantic ocean as far as Calcutta. 
 
 ![Frederic Tudor photo](https://investoramnesia.com/wp-content/uploads/2024/02/Tudor-Portrait.jpg)
+
 *Frederic Tudor. Source: Wikimedia Commons.*
 
 Tudor planned to ensure that countries would be able to afford his ice. In 1849, he [wrote](https://www.jstor.org/stable/25079177?seq=5), 
