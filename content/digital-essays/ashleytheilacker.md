@@ -29,7 +29,7 @@ Kitchenware was not the only product influenced by East Asian design. This pinew
 ](https://vanda-production-assets.s3.amazonaws.com/2019/07/04/15/17/36/0f1ca61a-8909-435b-9b6f-8d6ca9327611/sidecupoard.jpg)
 *Japanned pinewood cabinet decorated with Chinese landscapes and figures, designed by John Linnell, made by William Linnell, 1753, London. Museum no. W.55:1 to 24-1952. © Victoria and Albert Museum, London.*
 
-# A Colonial Toast to Madeira Wine 
+# Madeira: A Revolutionary Wine 
 
 While many remember tea, rum, and coffee as siginificant imports to early America, Bostonians also greatly enjoyed drinking wine. One of Boston's key wine imports - along with the rest of the colonies - was specifically made in Madeira, an island colonized by Portugal in the 15th century. The oldest shippers of Madeira wine were Cossart Gordon & Co., founded in 1745 and still producing and shipping the wine today.
 
