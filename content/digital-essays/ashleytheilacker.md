@@ -31,7 +31,12 @@ Kitchenware was not the only product influenced by East Asian design. This pinew
 
 # A Colonial Toast to Madeira Wine 
 
-This is a test section. This section will be about Madeira wine and its import to boston. 
+While many remember tea, rum, and coffee as siginificant imports to early America, Bostonians also greatly enjoyed drinking wine. One of Boston's key wine imports - along with the rest of the colonies - was specifically made in Madeira, an island colonized by Portugal in the 15th century. The oldest shippers of Madeira wine were Cossart Gordon & Co., founded in 1745 and still producing and shipping the wine today.
+
+![Wine advertisement](https://adverts250project.org/wp-content/uploads/2026/01/Feb-4-211776-Arruda-New-York-Journal-Page-4-768x393.jpg)
+*New-York Journal (February 1, 1776)*
+
+George Washington loved Madeira wine and [often ordered it to Mount Vernon](https://founders.archives.gov/documents/Washington/02-06-02-0166-0002), enjoying the beverage before the Revolution, throughout his presidency, and during the remainder of his life. 
 
 This is a second test paragraph. It will say something very interesting and include some good photos and archival material, too. 
 
